@@ -1,4 +1,4 @@
-### Hi there im Javier Mendoza 👋
+### Hi there im Javier Mendoza 👋👨🏻‍💻
 
 - 🌱 I’m currently in Universidad de La Laguna 
 - 📫 How to reach me: alu0101320779@ull.edu.es
